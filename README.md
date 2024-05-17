@@ -1,4 +1,4 @@
-- 👋 Hi, I'm @Dysousa2
+- 👋 Hi, I'm @Dyemerson_Sousa
 - 👀 I'm interested in acquiring knowledge
 - 🌱 I'm currently learning about technology
 - 📫 How to find me dyemersonousa@gmail.com
